@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there 🦕
+
+![Bruh](https://c.tenor.com/hYMULEaWN5AAAAAC/oggy-chill.gif)
 
 <!--
 **matsspoelgen/matsspoelgen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
